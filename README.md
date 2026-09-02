@@ -1,2 +1,1 @@
-# pisteuoapps
-Jual aplikasi premium lengkap. 
+Dapoer Pasta
